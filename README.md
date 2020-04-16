@@ -32,7 +32,7 @@ trace i'm too alone too alone
 way too silent, bound for a fall
 to grasp where the pain is from
 where the pain is found
-i need to track that comm
+i need to track that comm coz
 gotta make it home, stuck in doubts
 
 
