@@ -37,7 +37,9 @@ where my soul is born
 gotta make it home, stuck in doubts
 i need to track that comm
 gotta make it out
-
+ease the pain inside
+i shout to 
+i am fine i am fine
 
 
 bring up memories that made me stay
