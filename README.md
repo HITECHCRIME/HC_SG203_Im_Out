@@ -20,14 +20,24 @@ https://www.youtube.com/watch?v=nDmzHGuLzso
 ## Lyrics
 
 ```
-I'm out for calling you to stop, I don't revolve around your thoughts
-Prefer to stay away from motives, Keeping me around the clock
-Mind locked on targets, they evolve to find unknown
-Recall the agents paid to trace, i'm too alone i'm too alone
+I'm out for calling you to stop
+I don't revolve around your thoughts
+Prefer to stay away from motives
+Keeping me around the clock
+Mind locked on targets
+they evolve to find unknown
+Recall the agents paid to trace
+i'm too alone i'm too alone
 
-Way too silent, bound for a fall to grasp where the pain is from
-Where the pain is found, where my soul is born, gotta make it home, stuck in doubts
-i need to track that comm, gotta make it out, ease the pain inside, into flames i shout / cast
+Way too silent, bound for a fall to grasp 
+where the pain is from
+Where the pain is found, 
+where my soul is born, 
+gotta make it home, 
+stuck in doubts
+i need to track that comm, 
+gotta make it out, ease the pain inside, 
+into flames i shout / cast
 i am fine i am fine yet still alone
 
 
