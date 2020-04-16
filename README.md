@@ -24,8 +24,10 @@ I'm out for calling you to stop
 I don't revolve around your thoughts
 Prefer to stay away from motives
 Keeping me around the clock
-Mind locked on targets beyond 
-
+Mind locked on targets 
+bound for a fall
+to a low that's
+where the pain is found
 
 
 ```
