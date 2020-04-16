@@ -39,7 +39,7 @@ i need to track that comm
 gotta make it out
 ease the pain inside
 i shout into flames 
-i am fine i am fine
+i am fine i am fine but still alone
 
 
 bring up memories that made me stay
