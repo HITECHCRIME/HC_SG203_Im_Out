@@ -25,14 +25,29 @@ I don't revolve around your thoughts
 Prefer to stay away from motives
 Keeping me around the clock
 Mind locked on targets 
-bound for a fall
-to a low that's (I'm too alone)
-too alone - where the pain is found
-where the pain is from
-
-evolve to find unknown
+they evolve to find unknown
 recall the agents paid to
-trace the day
+trace i'm too alone too alone
+
+way too silent, bound for a fall
+to grasp where the pain is from
+where the pain is found
+i need to track that comm
+gotta make it home, stuck in doubts
+
+
+
+
+bring up memories that made me stay
+evolve to find unknown
+
+
+to a low that's (I'm too alone)
+ - 
+
+
+
+
 
 
 ```
