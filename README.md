@@ -22,7 +22,9 @@ https://www.youtube.com/watch?v=nDmzHGuLzso
 ```
 I'm out for calling you to stop
 I don't revolve around your thoughts
-Prefer to stay away
+Prefer to stay away from motives
+That keep me round the clock
+
 
 
 ```
