@@ -26,7 +26,7 @@ Prefer to stay away from motives
 Keeping me around the clock
 Mind locked on targets 
 bound for a fall
-to a low that's
+to a low that's (I'm too alone)
 where the pain is found
 
 
