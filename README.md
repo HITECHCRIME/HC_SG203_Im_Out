@@ -33,6 +33,7 @@ trace i'm too alone i''m too alone
 way too silent, bound for a fall
 to grasp where the pain is from
 where the pain is found
+where my soul is born
 i need to track that comm
 gotta make it home, stuck in doubts
 
