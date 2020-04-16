@@ -28,6 +28,7 @@ Mind locked on targets
 bound for a fall
 to a low that's (I'm too alone)
 where the pain is found
+where the pain is from
 
 
 ```
