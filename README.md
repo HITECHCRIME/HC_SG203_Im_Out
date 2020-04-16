@@ -1,17 +1,17 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# MOTHNODE_ I'm Out
 
 **Listen now:** 
 
 ## Project Data
 
-Description.
+https://www.youtube.com/watch?v=nDmzHGuLzso
 
 
-**Title:**  / **Featuring:** 
+**Title:** I'm Out  / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:** Griesgrammar / **Lyrics:** MOTHNODE
 
 **Narrative Design:**
 
@@ -20,6 +20,9 @@ Description.
 ## Lyrics
 
 ```
+I'm out for calling you to stop
+I don't revolve around your thoughts
+Prefer to stay away
 
 
 ```
