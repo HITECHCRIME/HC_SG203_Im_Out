@@ -24,15 +24,16 @@ I'm out for calling you to stop
 I don't revolve around your thoughts
 Prefer to stay away from motives
 Keeping me around the clock
+
 Mind locked on targets 
 they evolve to find unknown
 recall the agents paid to
-trace i'm too alone too alone
+trace i'm too alone i''m too alone
 
 way too silent, bound for a fall
 to grasp where the pain is from
 where the pain is found
-i need to track that comm coz
+i need to track that comm
 gotta make it home, stuck in doubts
 
 
