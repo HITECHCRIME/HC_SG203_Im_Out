@@ -25,6 +25,9 @@ I don't revolve around your thoughts
 Prefer to stay away from motives
 Keeping me around the clock
 Mind locked on targets
+Bound for a fall, too alone
+That's where the pain is found
+
 they evolve to find unknown
 Recall the agents paid to trace
 i'm too alone i'm too alone
