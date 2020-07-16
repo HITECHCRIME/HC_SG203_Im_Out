@@ -20,13 +20,21 @@ https://www.youtube.com/watch?v=nDmzHGuLzso
 ## Lyrics
 
 ```
-I'm out for calling you to stop
-I don't revolve around your thoughts
-Prefer to stay away from motives
-Keeping me around the clock
-Mind locked on targets
-Bound for a fall, too alone
-That's where the pain is found
+i'm out for calling you to stop
+i don't revolve around your thoughts
+prefer to stay away from motives
+keeping me around the clock
+mind locked on targets
+bound for a fall, too alone
+that's where the pain is found
+
+way too silent, bound for a fall to grasp 
+where the pain is from, where the pain is found 
+where my soul is born, gotta make it home 
+stuck in doubts, i need to track that comm 
+gotta make it out, ease the pain inside 
+into flames i shout, i am fine i am fine 
+yet still alone
 
 they evolve to find unknown
 Recall the agents paid to trace
