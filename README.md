@@ -28,6 +28,23 @@ mind locked on targets
 bound for a fall, too alone
 that's where the pain is found
 
+bring up memories that made me stay
+broken mind in pieces i'm okay
+these  facts
+
+evolve to find unknown, verse i play
+to a low that's been okay 
+(I'm too alone)
+
+i'm out for calling you to stop
+i don't revolve around your thoughts
+prefer to stay away from motives
+keeping me around the clock
+mind locked on targets
+bound for a fall, too alone
+that's where the pain is found
+
+
 way too silent, bound for a fall to grasp 
 where the pain is from, where the pain is found 
 where my soul is born, gotta make it home 
@@ -52,9 +69,7 @@ into flames i shout / cast
 i am fine i am fine yet still alone
 
 
-bring up memories that made me stay
-evolve to find unknown
-to a low that's (I'm too alone)
+
  - 
 
 
